@@ -1,0 +1,9 @@
+
+
+# John
+
+# John
+
+## Chapter 1
+
+In the beginning was the Word, and the Word was with God, and the Word was God. All things were made through him; without him nothing was made that has been made. In him was life, and that life was the light of men. The light shines in the darkness, but the darkness has not understood it. There came a man who was sent from God; his name was John.He came as a witness to testify concerning that light, so that through him all men might believe. He himself was not the light; he came only as a witness to the light, that he might give light to every man in the world. He came into the world, and though the world was made through him, the world did not recognize him. Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God-"The Word became flesh and made his dwelling among us. We have seen his glory, the glory of the One and Only, who came from the Father, full of grace and truth. " John testifies concerning him. He cries out", This is the one I said, 'He who comes after me has surpassed me because he was before me.' For the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God, but God the One and Only, who is at the Father's side, has seen him and glorified him.This was John's testimony when the Jews of Jerusalem sent priests and elders to ask him who he was. He confessed and did not deny it, but confessed freely, "I am not the Christ. "" Who are you? " they asked. "Who is Elias? " He replied", No, I am a prophet". Then they asked him, "Who are you? Tell us who sent you. " He replied", I am the voice of one calling in the desert, 'Make straight the way for the Lord,' as the prophet Isaiah said".questioned him, "Why then do you baptize if you are not the Christ, nor Elijah, nor the Prophet?"
